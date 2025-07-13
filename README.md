@@ -1,3 +1,1 @@
-macro + quantamental investing enthusiast
-
-write it up!
+macro + quantamental investing
